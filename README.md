@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kruthi-msd
+- 👋 Hi, I’m Mathamsetti Sri Durga Kruthi.
 - 👀 I’m interested in exploring new skills based on my intrests.
 - 🌱 I’m currently pursuing my B.Tech final year.
 <!---
